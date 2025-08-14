@@ -1,1 +1,1 @@
-![image](https://i.ytimg.com/vi/BojTeu5n0Eg/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLBRGx_pDOStVwkzJiC9HYaFjeA7_w)
+![image](https://media.licdn.com/dms/image/v2/D4D12AQHBA89SpSS7IA/article-cover_image-shrink_720_1280/article-cover_image-shrink_720_1280/0/1729360013645?e=1760572800&v=beta&t=Lejs4Jhu5Ys7hg2cWS2gVq973_UXMVRrwYHc74EidJs)
